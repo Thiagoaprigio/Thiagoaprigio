@@ -1,4 +1,4 @@
-## Ola eu sou o Thiago Costa Aprigio😎 🖐️ 👋
+## Ola eu sou o Thiago Costa Aprigio😎 👋
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/thiago_costaa_01)
 
